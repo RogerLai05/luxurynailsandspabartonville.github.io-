@@ -1,2 +1,2 @@
-# Luxury Nails and Spa Bartonville
+Luxury Nails and Spa Bartonville
 
